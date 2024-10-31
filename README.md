@@ -25,4 +25,5 @@ I’d love to connect—feel free to reach out and chat about tech! 💬
 ---
 
 ✨ **Check out my repositories below** to see the projects I'm diving into! 🚀
+
 🌟 **Together, let's innovate and inspire!** 🌟
